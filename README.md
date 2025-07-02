@@ -1,4 +1,4 @@
-This project, titled Akupāra (अकूपार), is a queer and speculative art piece about the Boundless World Turtle. 
+This project, titled Akupāra (अकूपार), is a queer and speculative art piece about the Boundless World Turtle. Check out the images for more, and check out my website (phalpha.github.io) and the projects page for a video!
 
 *Did you know that the entire earth actually rests on the back of a giant turtle? 
 This mystical being, called Akupāra (अकूपार) in ancient Indian texts, supports the weight of the world on its shell. It wasn’t only the Indians who knew of the world turtle - communities across the world from China to the indigenous peoples of Northeastern “America” told stories about their magnificence. When I imagine Akupāra, I am filled with amazement. What tales would the Akupara tell me were I to communicate with it? What feelings would overcome me if I caught a glimmer of its eternal beauty? It just so happens that I did.*
